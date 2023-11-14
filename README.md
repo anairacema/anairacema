@@ -1,4 +1,4 @@
-###  🚀 Olá, eu sou Ana Iracema, apaixonada por tecnologia e inovação! Tenho 27 anos e atualmente desbravo dois mundos incríveis:
+###  🚀 Olá, eu sou Ana Iracema, e estou descobrindo o universo da tecnologia e inovação! Tenho 27 anos e atualmente desbravo dois mundos incríveis:
 <br><br>
 🔧 Como Analista de Suporte Técnico, enfrento desafios diários e busco soluções criativas para oferecer a melhor experiência em tecnologia.
 <br><br>
