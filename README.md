@@ -6,7 +6,7 @@ Tenho 27 anos e atualmente desbravo dois mundos incríveis:
 <br><br>
 💻 Além disso, estou imersa na emocionante jornada de aprendizado em programação por meio da graduação em Análise e Desenvolvimento de Sistemas. Cada linha de código é uma descoberta e uma oportunidade para aprimorar minhas habilidades.
 <br><br>
-🌱 Estou sempre aberta a novos aprendizados e conexões! Você pode me encontrar no LinkedIn para uma conversa ou colaboração: [LinkedIn](https://www.linkedin.com/in/ana-iracema-da-silva-ignacio-09381865/)
+🌱 Estou sempre aberta a novos aprendizados e conexões! Você pode me encontrar no LinkedIn para uma conversa ou colaboração:(https://www.linkedin.com/in/ana-iracema-da-silva-ignacio-09381865/)
 <br><br>
 ✉️ Também estou disponível via e-mail em nana.iracema@gmail.com para trocar ideias e experiências.
 
